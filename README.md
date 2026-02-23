@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I am Pushkar Verma 
-**A passionate Aspiring Software Engineer 
+**A passionate Aspiring Software Engineer**
 
 Email Me 👉 ✉️ **pushkarvermapro2006@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
