@@ -1,4 +1,16 @@
+# 💫 Hi 👋, I am Pushkar Verma 
+**A passionate Aspiring Software Engineer 
 
+Email Me 👉 ✉️ **pushkarvermapro2006@gmail.com** For Collaboration/Project or Anything Else. 😊😊
+
+- 🔭 **I’m currently working on:** Developing My Skill Not Any Project
+- 🌱 **I’m currently learning:** Front End
+- 👯 **I’m looking to collaborate on:** Not Looking For Any Collaboration 
+- 🤔 **I’m looking for help with:** No Project 
+- 💬 **Ask me about:** Collaboration, Tech Support
+- 📫 **How to reach me:**pushkarvermapro2006@gmail.com
+- 😄 **Pronouns:** Pushkar Sir
+- ⚡ **Fun fact:** I Love Tech and Tech Love Me
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/pu_shkarvrma) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/pushkarverma8) [![X](https://img.shields.io/badge/X-black.svg?logo=X&logoColor=white)](https://x.com/PushkarVer62809) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:pushkarvermapro2006@gmail.com) 
 
