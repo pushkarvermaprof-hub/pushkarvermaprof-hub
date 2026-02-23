@@ -8,7 +8,7 @@ Email Me 👉 ✉️ **pushkarvermapro2006@gmail.com** For Collaboration/Project
 - 👯 **I’m looking to collaborate on:** Not Looking For Any Collaboration 
 - 🤔 **I’m looking for help with:** No Project 
 - 💬 **Ask me about:** Collaboration, Tech Support
-- 📫 **How to reach me:**pushkarvermapro2006@gmail.com
+- 📫 **How to reach me**:pushkarvermapro2006@gmail.com
 - 😄 **Pronouns:** Pushkar Sir
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 ## 🌐 Socials:
